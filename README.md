@@ -1,6 +1,6 @@
 # This is Anna's website of comics 
 
-         ____
+            ____
       _,.-'`_ o `;__,                
        _.-'` '---'  '
                     ____
